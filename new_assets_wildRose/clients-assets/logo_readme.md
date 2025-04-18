@@ -1,0 +1,1 @@
+https://www.kankou-shimane.com/and_goen/
